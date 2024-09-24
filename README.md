@@ -31,6 +31,6 @@ I AM A DINOSAURRRRR
 
 ![image](https://github.com/user-attachments/assets/21e4815a-8633-4e39-a8f2-7b21c0e50a9f)
 
-kbye1
+kbye!
 
 ![image](https://github.com/user-attachments/assets/01401677-2e71-4141-b7ef-a87287c7bfae)
